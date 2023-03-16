@@ -1,3 +1,4 @@
+![](IMG_20200117_151300.jpg)  
 # **Salauyeva Volha** 
 #### Date of Birth: 01.03.1989
 #### Telephone: +48452366427
